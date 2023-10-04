@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bhaveshmake
-- 👀 I’m interested in learn new thinks to build my self best.
+- 👀 I’m interested in learn new thing to build my self best.
 - 🌱 I’m currently learning advance android.
 - 💞️ I’m looking to collaborate on web developement.
 - 📫 How to reach me gmail me bhaveshborana629@gmail.com
